@@ -3,7 +3,7 @@
 hey welcome to my portfolio 
 
 
-it's coming up tmr When i learn html and css with tanay prathap on Youtube
+it's coming up tmr When i learn html and css with tanay pratap on Youtube
 
 for Now I Know:
 
